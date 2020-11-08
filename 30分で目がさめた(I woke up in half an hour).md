@@ -1,6 +1,9 @@
 
 # 30分で目がさめた
 
+神ヤヤネヒの生放送のエンディングテーマ曲です。  
+This is the ending theme song for a live streaming on the Yayanehi Channel.
+
 - Hiragana: さんじゅっぷんで めがさめた
 - Phonetic: Sanju-pun de mega sameta.
 - En: I woke up in half an hour.
@@ -14,8 +17,8 @@
 鳥に脳みそ突かれてる人の  
 そんな夢を見た  
 
-> A person who is being pecked in the brain by a bird, 
-> with bird food planted in his bare brain.
+> A person who is being pecked in the brain by a bird,   
+> with bird food planted in his bare brain.  
 > I dreamed of such a scene.
 
 その国では  
@@ -23,25 +26,25 @@
 近隣の森に住んでるパンダが  
 襲ってきて  
 
-> In that country, when you feed the birds, 
-> the pandas that live in the nearby forest will attack you.
+> In that country, when you feed the birds,   
+> the pandas that live in the nearby forest will attack you.  
 
 殺されるらしいんだ  
 らしいんだ  
 
-> And they're will probably going to be kill.
+> And they're will probably going to be kill.  
 > Will be killed.
 
 鳥に脳みそ突かれた人は  
 いい人だったのに  
 
-> The guy with the bird pecking 
+> The guy with the bird pecking   
 > his brains out was a nice guy.
 
 悪い人にいじめられて  
 ひどいことになってた  
 
-> He was bullied by a bad person, 
+> He was bullied by a bad person,   
 > but it was a terrible thing.
 
 ---- 
