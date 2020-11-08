@@ -1,5 +1,5 @@
 
-# 30分で目がさめた
+# のーみそがとける
 
 神ヤヤネヒの生放送のオープニングテーマ曲です。  
 This is the opening theme song for a live streaming on the Yayanehi Channel.
