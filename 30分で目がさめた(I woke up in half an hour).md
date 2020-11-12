@@ -63,7 +63,7 @@ son na yume o mita
 
 sono kuni dewa  
 tori ni esa o yaru to  
-kin rin no mori ni sumu pan da ga  
+kin rin no mori ni sunderu pan da ga  
 osotte ki te  
 
 > その国では  
@@ -71,8 +71,8 @@ osotte ki te
 > 近隣の森に住んでるパンダが  
 > 襲ってきて  
 
-korosareru rashi inda  
-rashi inda  
+korosareru rashii nnda  
+rashii nnda
 
 > 殺されるらしいんだ  
 > らしいんだ  
